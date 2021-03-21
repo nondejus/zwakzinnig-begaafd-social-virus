@@ -1,1 +1,0 @@
-# zwakzinnig-begaafd-socio-virus
